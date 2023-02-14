@@ -46,3 +46,25 @@
 - en esta ocasión David
   - no investigó bien para determinar cuál era la voluntad divina para este movimiento
   - no busco cuales eran las instrucciones de jehova
+- que paso
+  - ellos pusieron el arca en una carreta
+  - en cierto momento la carreta
+    - se iba a volcar
+  - uno de los dos siervos que llevaban la carreta
+    - Uzá
+    - extendió la mano y agarro el arca
+  - jehova se enoja muchisimo con Uza
+    - le da muerte alli mismo
+- Si hubiesen investigado del movimiento del arca
+  - no hubiesen utilizado una carreta
+  - mas bien
+    - hubiesen utilizado a los levitas qohatitas para transportarla sobre los hombros
+    - instrucciones que jehová habia dado mucho tiempo antes para mover el arca
+- al final
+  - David reconoce
+    - Leamos 1 Cronicas 15:13
+      - _13 Como ustedes no la llevaron la primera vez, la ira de Jehová nuestro Dios estalló contra nosotros, porque no nos aseguramos de cuál era la forma correcta de hacerlo”._
+- david
+  - vio
+    - seguir las instrucciones de jehova
+  
