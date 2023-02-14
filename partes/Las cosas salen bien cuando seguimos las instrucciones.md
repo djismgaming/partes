@@ -96,4 +96,5 @@
   - nos conservaran la consciencia limpia
   - nos hará posible que sigamos sirviendo a jehova
     - con alegria
-    - las cosas saldran bien
+    - podremos ver
+      - las cosas saldran bien
