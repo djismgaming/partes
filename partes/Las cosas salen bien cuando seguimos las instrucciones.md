@@ -26,15 +26,23 @@
 - el arca del pacto
   - seria movida
   - 1 Samuel 7:2
-    - el arca paso 20 anos en total fuera de Jerusalen
-  - David queria que fuese devuelta
+    - el arca paso 20 anos en total en Israel
+  - David queria que fuese devuelta a Jerusalen
     - consulto con los lideres del pueblo
-    - Leamos 1Cr 13:3
-
-_3 Vamos a traer de vuelta el Arca de nuestro Dios”. Y es que en los días de Saúl la habían descuidado._
+    - Leamos 1Cronicas 13:3
+      - _3 Vamos a traer de vuelta el Arca de nuestro Dios”. Y es que en los días de Saúl la habían descuidado._
 
 - para ese movimiento
   - toda la congregacion estuvo de acuerdo
   - les parecio bien a todos
+
+- David
+  - usualmente pedia la ayuda de Jehová
+  - ese era su deseo
+    - 1 Cronicas 13:2a
+    - _Entonces David le dijo a toda la congregación de Israel: “Si a ustedes les parece bien y si Jehová nuestro Dios lo aprueba_
   - se hicieron todos los preparativos
-  - hecharon manos a la obra
+  - se hecharon manos a la obra
+- en esta ocasión David
+  - no investigó bien para determinar cuál era la voluntad divina para este movimiento
+  - no busco cuales eran las instrucciones de jehova
