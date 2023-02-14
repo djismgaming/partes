@@ -38,7 +38,7 @@
   - usualmente pedia la ayuda de Jehová
   - ese era su deseo
     - 1 Cronicas 13:2a
-    - _Entonces David le dijo a toda la congregación de Israel: “Si a ustedes les parece bien y si Jehová nuestro Dios lo aprueba_
+    - Entonces David le dijo a toda la congregación de Israel: “Si a ustedes les parece bien y si Jehová nuestro Dios lo aprueba
   - se hicieron todos los preparativos
   - se hecharon manos a la obra
 - en esta ocasión David
@@ -91,7 +91,7 @@
   - jw broadcasting
   - informes del cuerpo gobernante
   - discursos como estos semanalmente
-- seguir estos
+- seguir estas instrucciones
   - será siempre de beneficio para todos nosotros
   - nos conservaran la consciencia limpia
   - nos hará posible que sigamos sirviendo a jehova
