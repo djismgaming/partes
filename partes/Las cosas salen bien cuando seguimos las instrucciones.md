@@ -74,7 +74,7 @@
   - cuando los levitas transportaron el Arca a su lugar final
     - paso lo que vemos en la ilustracion de la guia vida y ministerio
     - se canto una cancion que incluia este recordatorio sincero
-      - 1 Cronicas 16:11
+      - Leamos 1 Cronicas 16:11
         - _11 Busquen a Jehová y su fuerza. Busquen siempre su rostro._
         - "Busquen que siempre jehova vea y apruebe lo que esten haciendo"
 - cuan importante
