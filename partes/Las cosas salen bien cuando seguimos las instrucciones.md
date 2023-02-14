@@ -29,7 +29,7 @@
     - el arca paso 20 anos en total en Israel
   - David queria que fuese devuelta a Jerusalen
     - consulto con los lideres del pueblo
-    - Leamos 1Cronicas 13:3
+    - Leamos 1 Cronicas 13:3
       - _3 Vamos a traer de vuelta el Arca de nuestro Dios”. Y es que en los días de Saúl la habían descuidado._
 - para ese movimiento
   - toda la congregacion estuvo de acuerdo
