@@ -31,11 +31,9 @@
     - consulto con los lideres del pueblo
     - Leamos 1Cronicas 13:3
       - _3 Vamos a traer de vuelta el Arca de nuestro Dios”. Y es que en los días de Saúl la habían descuidado._
-
 - para ese movimiento
   - toda la congregacion estuvo de acuerdo
   - les parecio bien a todos
-
 - David
   - usualmente pedia la ayuda de Jehová
   - ese era su deseo
@@ -67,4 +65,35 @@
 - david
   - vio
     - seguir las instrucciones de jehova
-  
+    - da buen fruto
+- movimiento final
+  - desde la casa de Obed-edom hasta Jerusalen
+  - David estuvo pendiente de tomar en cuenta a Jehova
+    - 1 Cronicas 15:2
+      - _2 Fue entonces cuando David dijo: “Nadie debe llevar el Arca del Dios verdadero excepto los levitas, porque Jehová los ha elegido para llevar el Arca de Jehová y para servirle siempre”._
+  - cuando los levitas transportaron el Arca a su lugar final
+    - paso lo que vemos en la ilustracion de la guia vida y ministerio
+    - se canto una cancion que incluia este recordatorio sincero
+      - 1 Cronicas 16:11
+        - _11 Busquen a Jehová y su fuerza. Busquen siempre su rostro._
+        - "Busquen que siempre jehova vea y apruebe lo que esten haciendo"
+- cuan importante
+  - para los siervos de jehova
+    - seguir instrucciones
+    - Leamos Deuteronomio 30:16
+      - _16 Si escuchas los mandamientos de Jehová tu Dios que te estoy mandando hoy amando a Jehová tu Dios, andando en sus caminos y obedeciendo sus mandamientos, sus estatutos y sus decisiones judiciales, entonces vivirás y te multiplicarás, y Jehová tu Dios te bendecirá en la tierra que vas a conquistar._
+  - Jehova da mucho valor a nuestras buenas intenciones
+    - ahora
+      - si queremos que este contento con lo que hacemos
+      - tenemos que seguir sus instrucciones
+- en estos ultimos anos hemos recibido un caudal de informacion e instrucciones
+  - estudios de la atalaya
+  - jw broadcasting
+  - informes del cuerpo gobernante
+  - discursos como estos semanalmente
+- seguir estos
+  - será siempre de beneficio para todos nosotros
+  - nos conservaran la consciencia limpia
+  - nos hará posible que sigamos sirviendo a jehova
+    - con alegria
+    - las cosas saldran bien
