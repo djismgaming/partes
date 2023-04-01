@@ -201,7 +201,7 @@
 - Tanto Sheila como Liubov, confian en Jehová
   - él nunca las ha decepcionado
   - ¿vieron como las ayudó?
-    - Sheila de Brazil 
+    - Sheila de Brazil
       - dijo _no estoy sola, nunca lo he estado y eso es gracias a los hermanos_
       - añadió _la esperanza que me da Jehová para el futuro es lo que me ayuda a ser positiva_
       - es claro que Jehová la esta ayudando
