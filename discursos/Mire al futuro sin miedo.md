@@ -311,3 +311,52 @@
 - 3er paso para confiar en Jehová como nuestra fuerza y refugio
   - entrar en la familia mundial de los Testigos de Jehová
   - ¿no puedo adorar yo a Jehová a mi manera, solo?
+  - leamos Hebreos 10:24, 25
+    - _Y estemos pendientes unos de otros para motivarnos a mostrar amor y a hacer buenas obras,25sin dejar de reunirnos, como algunos tienen por costumbre. Más bien, animémonos unos a otros, sobre todo al ver que el día se acerca._
+  - que idea le dan estos versículos
+    - _estemos pendientes unos de otros_
+    - _sin dejar de reunirnos_
+    - _animémonos unos a otros_
+  - verdad que da la idea de un grupo unido
+  - un grupo de personas que se reunen, se quieren y se apoyan
+  - los Testigos de Jehová hacemos esto
+    - somos una familia unida y organizada
+    - usted, si lo desea, puede formar parte de esta familia
+    - venir a nuestras reuniones le ayudará mucho a confiar en Jehová
+    - en las reuniones se habla mucho de Jehová
+    - podrá conocer a personas que conocen bien a Dios y conocen bien la Biblia
+    - verá con sus propios ojos, que los consejos de la Biblia de verdad funcionan
+    - podrá preguntarles a los que estén alli, pq confían en Jehova y que les convenció de que la Biblia dice la verdad
+    - encontrará muchos amigos que se apoyan en los momentos difíciles de la vida
+
+- repasemos los 3 pasos que necesitamos para confiar en Jehová y hacerlo nuestro refugio
+  - 1
+    - estudiar la Biblia para ver a Jehová como un padre que nos ama
+  - 2
+    - contarle a Dios todo lo que nos preocupa, con la seguridad de que nos va a ayudar
+  - 3
+    - entrar en la familia mundial de los Testigos de Jehová
+
+- todo lo que vimos es muy bonito verdad
+  - además es realista
+    - es cierto y muy útil
+    - pero debe confirmarlo por usted mismo
+- si resulta que es lo que tal vez lleva buscando hace mucho tiempo
+  - lo invitamos a celebrar con nosotros la Conmemoración de la muerte de Cristo
+    - este próximo martes 4 de abril
+  - es bueno asista porque se explicará claramente, y con la Biblia, porque es tan importante la muerte de Jesús
+  - verá que gracias a lo que hizo Jesús
+    - podemos ser amigos de Dios ahora
+    - disfrutar en el futuro de una vida maravillosa
+
+- recuerde que la clave para mirar al futuro sin miedo es
+  - confiar en Jehová
+    - verlo como un refugio real
+    - con puertas abiertas
+    - no dude con poner su confianza en Jehová
+      - nunca ha decepcionado a quienes han confiado en él
+      - y nunca lo hará
+
+- para finalizar podemos leer las hermosas palabras de cierre del Salmo 27:14
+  - palabras del rey David, que transmiten mucha confianza en Jehová
+  - _Pon tu esperanza en Jehová; sé valiente y fuerte de corazón. Sí, pon tu esperanza en Jehová._
