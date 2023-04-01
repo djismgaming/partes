@@ -10,9 +10,9 @@
     - antonio gutierrez
       - secretario general de la ONU
     - noviembre pasado dijo
-      - nuestro planeta sigue en la sala de urgencias
+      - _nuestro planeta sigue en la sala de urgencias_
     - meses antes aseguró
-      - vamos hacia al desastre climático por la via rápida
+      - _vamos hacia al desastre climático por la via rápida_
   - por ello muchos se sienten preocupados por el futuro
     - no le faltan razones para sentirse asi verdad?
     - en qualquier momento nos puede aftectar
