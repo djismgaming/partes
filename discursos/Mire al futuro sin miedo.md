@@ -1,0 +1,313 @@
+# Mire al futuro sin miedo
+
+- temas mas buscados en internet en el 2022
+  - covid 19
+  - guerra en ukrania
+  - cambio climatico
+  - precio de la electricidad
+  - solo algunos de los problemas graves
+  - hablando de la situación de la Tierra
+    - antonio gutierrez
+      - secretario general de la ONU
+    - noviembre pasado dijo
+      - nuestro planeta sigue en la sala de urgencias
+    - meses antes aseguró
+      - vamos hacia al desastre climático por la via rápida
+  - por ello muchos se sienten preocupados por el futuro
+    - no le faltan razones para sentirse asi verdad?
+    - en qualquier momento nos puede aftectar
+      - desastres naturales
+      - problema grave de salud
+      - perder el trabajo
+    - no queremos pensar en el futuro
+      - que futuro vivirá nuestras familias
+
+- a pesar de todo esto
+  - podemos mirar al futuro sin miedo
+    - no es un sueño
+  - la biblia nos dice la clave
+  - leamos juntos el Salmo 46:1, 2
+    - _Dios es nuestro refugio y nuestra fuerza, una ayuda siempre disponible en tiempos de angustia. Por eso no tendremos miedo aunque la tierra sufra cambios, aunque las montañas se hundan en las profundidades del mar,_
+    - que palabras tan poderosas
+    - como es posible?
+    - versículo 1 dice
+      - _Dios es nuestro refugio y nuestra fuerza_
+  - la palabra refugio
+    - imaginar
+      - lugares que preparan las autoridades para proteger a población
+    - como se sentiría si a horas de la llegada de un huracán
+      - al llegar a ese refugio
+        - cerrado
+        - abandonado
+      - descepción
+      - con nuestro Dios no hay descepciones
+        - versículo 1 dice es
+          - _una ayuda siempre disponible en tiempos de angustia_
+        - si confiamos en Jehová
+          - las puertas de su refugio nunca estarán cerradas
+  - por eso podemos mantener la calma
+    - aunque el mundo sea sacudido por estos problemas
+    - o que nuestra situación personal vaya de mal en peor
+- que nos da Jehová para
+  - para poder mirar al futuro así
+    - con confianza
+    - sin miedo
+  - nos da 3 cosas
+
+- 1er lugar
+- Jehová nos promete un futuro maravilloso
+  - promete que todos los que confian en él
+    - vivir para siempre en un mundo
+      - limpio
+      - justo
+      - lleno de buena gente
+  - veamos una de sus preciosas promesas
+    - Isaías 65:21-23
+      - _Construirán casas y vivirán en ellas; plantarán viñas y comerán su fruto. No construirán casas para que otros vivan en ellas ni plantarán para que otros coman. Porque los días de mi pueblo serán como los días de un árbol, y mis escogidos disfrutarán al máximo del fruto de su trabajo. No se esforzarán en vano ni traerán hijos al mundo para que sufran, porque son la descendencia compuesta por los que Jehová ha bendecido, ellos y sus descendientes._
+    - palabras tan bonitas
+    - ¿como será la vida cuando se cumpla esta promesa?
+      - _IMAGEN_
+      - veamos una imágen que ayuda a situarnos allí
+      - versículo 21 dice que _Construirán casas y vivirán en ellas_
+        - cada uno con su casa
+        - cada uno su terreno
+        - no endeudarse para vivir así
+        - ¿como le gustaria su casa?
+        - ¿que plantaría?
+      - versículo 22 y 23 dice que los que vivan allí _disfrutarán al máximo del fruto de su trabajo y No se esforzarán en vano_
+        - vida plena
+        - realizados
+        - radiantes de felicidad
+        - llenos de energía
+        - imagine
+          - levantarse así todos los dias
+      - versículo 23 sigue diciendo que _no traerán hijos al mundo para que sufran_
+        - como será enamorarse
+        - casarse
+        - tener hijos en un entorno así
+        - ¿ve los niños jugando con el león?
+          - va a haber mucho con lo que entretenerse
+    - eso no es todo
+      - Hechos 24:15
+        - que habrá resurrección tanto de justos como de injustos
+        - millones, que han muerto, volveran a la vida
+        - en una tierra convertida en un paraíso
+        - oportunidad de vivir para siempre en ese maravilloso futuro
+    - eso es lo que Dios ha propuesto
+      - eso es lo que él mismo explica en la biblia
+      - ¿quien puede impedir que Jehová cumpla su promesa?
+        - absolutamente nadie
+
+- ¿que más nos da Jehová para mirar al futuro sin temor?
+  - 2do lugar
+    - Diós nos da su ayuda ahora
+      - Salmos 73:23, 24
+        - palabras del escritor del Salmo 73 a Jehová
+          - _Pero ahora estoy siempre contigo; tú tienes agarrada mi mano derecha. Me guías con tus consejos, y después me llevarás a la gloria._
+      - escritor de este Salmo
+        - convencido que Jehová llevaba de la mano
+          - ¿en que sentido?
+        - versículo 24 dice _Me guías con tus consejos_
+          - para el
+            - jehova era maestro, asesor, gía
+        - luego dice _me llevarás a la gloria_
+          - persona quie se deja guiar por Jehová
+            - Jehova la bendice y le regala su amistad
+            - un honor y gloria extraordinaria ser su amigo
+            - sabe como ayudarnos en cada momento
+              - sabiduria o sensatez para sobrellevar problemas de la vida
+              - consejos que funcionan en todas las culturas
+                - no caducan con el paso del tiempo
+              - principalmente mediante la biblia
+                - administrar el dinero
+                - tener vidas de familia felices
+                - manejar estress y ansiedad
+                - cultivar cualidades positivas
+                  - fe y paciencia
+                  - una persona con fe y paciencia
+                  - puede enfrentarse a las situaciones mas complejas de la vida
+    - Jehová nos regala ahora algo muy especial
+      - algo que no podemos conseguir por nuestros propios medios
+      - ¿de que se trata?
+      - descubramoslo en la Biblia
+        - Filipenses 4:6, 7
+          - _No se angustien por nada. Más bien, en cualquier situación, mediante oraciones y ruegos y dando gracias, háganle saber a Dios sus peticiones, y la paz de Dios, que está más allá de lo que ningún ser humano puede entender, protegerá sus corazones y sus mentes por medio de Cristo Jesús._
+        - versículo 7 dice cual es ese regalo especial _la paz de Dios_
+          - ¿que es?
+            - tranquilidad que uno siente cuando tiene una amistad con Dios
+          - ¿por que dice el versículo que va _mas allá de lo que ningún ser humano puede entender_
+            - 2 razones
+              - viene de Dios, nosotros no la producimos
+              - puede ayudarnos más de lo que podemos pensar
+              - _IMAGEN_
+              - en esta imagen vemos a una persona mayor
+                - tal vez vive en una residencia para ancianos
+                - y tiene problemas de movilidad
+                - la fotografía en la mesa puede dar idea de que es una viuda
+                - puede sentirse sola, triste
+              - pero
+                - verdad que transmite paz
+                - ¿que hace ella?
+                  - está orando
+                  - contandole a Dios todo lo que siente
+                  - Jehová es un amigo de verdad, alguien real
+                  - gracias a la paz de Dios
+                    - mantiene la calma
+                    - piensa con claridad
+                    - mira al futuro sin miedo
+        - versículo 7 dice que con la paz de Dios _podemos proteger nuestros corazones y nuestra mente_
+          - así los problemas de la vida y las preocupaciones
+            - no pueden superarnos y quebrarnos o romper en sentido emocional
+        - con razón el versiculo 6 dice _no se angustien por nada_
+        - ayuda maravillosa y extraordinaria que nos puede dar ahora
+      - pueden aparecer problemas bien complejos y fuertes
+        - que nos pueden dar miedo
+        - pero con Jehová como nuestro refugio
+        - podemos superarlos
+        - él estará ahi para sostenernos
+          - darnos fuerzas y valor
+          - hasta en los momentos mas oscuros de la vida
+
+- ¿que más nos da Jehová para que podamos mirar hacia el futuro sin temor?
+  - 3er lugar
+    - Dios se vale de una familia mundial para ayudar a los que confían en él
+      - familia mundial de hermanos y hermanas espirituales
+    - Testigos de Jehová somos una gran familia
+      - nos animamos y apoyamos mutuamente
+        - en especial cuando más hace falta
+          - momentos difíciles
+      - _IMAGEN_
+        - en esta imágen vemos a Testigos de Jehová
+          - llevando ayuda a otros de sus hermanos
+            - agua y alimentos a quien pasa por situaciones de emergencia
+        - por todo el mundo hacemos esto a nuestros hermanos y a otras personas
+          - tal vez victimas de guerras, grandes incendios entre otros desastres naturales
+          - los vemos allí sonrientes
+            - por que la ayuda se lleva repleta de amor y rápidamente
+        - en los último gran terremoto en Turquía
+          - los Testigos organizaron comités de socorro
+            - para encontrar a las víctimas y brindarles la ayuda necesaria
+          - hacemos lo que dice la Biblia
+            - 1 Juan 3:18
+              - _Hijitos, no amemos de palabra ni de labios para afuera, sino con hechos y de verdad._
+          - las palabras se las lleva el viento
+            - nos amamos con hechos y con verdad
+        - al tener una familia así, Jehová nos quita el miedo al futuro
+          - no estamos solos y vulnerables
+          - pase lo que pase
+            - tendremos una familia unida y que se demuestra amor con hechos
+          - conozcamos, en el siguiente video, a dos Testigos de Jehová que no le tienen miedo al futuro, a pesar de estar pasando por situaciones muy difíciles
+
+- Tanto Sheila como Liubov, confian en Jehová
+  - él nunca las ha decepcionado
+  - ¿vieron como las ayudó?
+    - Sheila de Brazil 
+      - dijo _no estoy sola, nunca lo he estado y eso es gracias a los hermanos_
+      - añadió _la esperanza que me da Jehová para el futuro es lo que me ayuda a ser positiva_
+      - es claro que Jehová la esta ayudando
+        - con una gran familia espirutual y la promesa de un futuro maravilloso
+          - ella ya se ve en el futuro con su esposo sano, andando
+    - Liubov de Ukrania
+      - dijo _no se que habriamos hecho sin los hermanos, nos lo dieron todo_
+        - como acabamos de leer en la Biblia, los hermanos le demostraron amor con hechos y con verdad
+      - me llamó la atención lo que dijo de la oración
+      - _es la clave para seguir adelante, te da paz interior_
+        - Jehová la esta ayudando
+          - con la hermandad y dandole paz interior, la paz de Dios
+      - con razón termina diciendo
+        - _no hay ninguna razón para tenerle miedo al futuro, no hay ninguna_
+
+- Hagamos un repaso de lo que hemos aprendido hasta aquí
+  - aunque vivimos en un mundo que da miedo
+    - podemos vivir con calma y esperanza si confiamos en Jehová
+  - nos está ayudando de 3 maneras a mirar al futuro sin temor
+    - promete un futuro maravilloso
+    - nos ayuda ahora con consejos sabios, paciencia, fe, paz, fuerzas y valor
+    - nos da una familia mundial unida
+  - estos tres remedios juntos
+    - antídoto perfecto para vencer el miedo al futuro
+    - para mirarlo con ilusión y esperanza
+
+- este antídoto solo funciona si confiamos en Jehová
+  - que puede hacer usted para confiar en Jehová
+  - para que él se convierta en su refugio, en su fuerza en momentos difíciles
+  - 3 cosas que puede hacer
+
+- 1ra
+  - estudiar la Biblia
+    - asi vera a Jehová como un padre que le quiere mucho
+    - él no espera que le confíe a ciegas, por emoción
+    - él quiere que utilize la razón, la lógica
+    - cuando estudie la Biblia verá
+      - que tiene ahí un padre amoroso
+      - que desea lo mejor para usted
+      - pondrá en práctica lo que aprenda
+      - verá de Jehová, que es un buen padre
+    - esto lo explica la Biblia en Isaías 48:17, 18
+      - _Esto es lo que dice Jehová, tu Recomprador, el Santo de Israel: “Yo, Jehová, soy tu Dios, el que te enseña por tu propio bien, el que te guía por el camino en que debes andar. ¡Si tan solo prestaras atención a mis mandamientos! Entonces, tu paz llegaría a ser igual que un río, y tu justicia, como las olas del mar._
+    - Jehová se presenta a si mismo _Yo, Jehová, soy tu Dios, el que te enseña por tu propio bien_
+    - en el versículo 48 nos ruega que le hagamos caso, como un padre a sus hijos _Si tan solo prestaras atención a mis mandamientos_
+    - entonces promete paz y justicia
+    - en un río, usualmente la corriente de agua nunca se acaba
+      - así será nuestra paz si obedecemos a Jehová, nunca se acabará
+        - paz con nosotros mismos
+        - paz con los demas
+        - paz con Dios
+    - luego dice que _la justicia será como las olas del mar_
+      - las olas no paran de llegar a la orilla, son constantes
+      - nuestras obras serán siempre justas, buenas, nobles
+  - para ver el futuro sin miedo, es imprescindible estudiar la Biblia
+    - ver que Jehová es un padre que nos ama y se preocupa por nuestro bienestar
+    - por eso los Testigos de Jehová ofrecemos clases particulares de la Biblia totalmente gratis
+    - si desea saber como son estas clases, no dude en hablar con cualquier Testigo de Jehová
+    - verá que Jehová quiere le vaya bien en la vida
+      - verá como ayudó personajes fieles de tiempos Bíblicos
+      - tam bien cómo ayuda a muchas personas en la actualidad
+      - eso le dará más confianza en Jehová
+
+- 2do paso para confiar en Dios
+  - contarle todo lo que siente
+  - seguro de que él le quiere ayudar
+  - veamos 1 Pedro 5:6, 7
+    - _Por lo tanto, humíllense bajo la poderosa mano de Dios, para que él los engrandezca a su debido tiempo, mientras echan todas sus inquietudes sobre él, porque él se preocupa por ustedes._
+    - versículo 7 nos dice que hechemos sobre jehová todas nuestras inquietudes
+      - imagine que lleva un saco de comida para su mascota, que acaba de comprar, uno bien pesado, mas otras cositas que vió lindas para su bebé de 4 patas
+      - llega de sorpresa alguien y le ofrece su ayuda con ese saco
+      - se lo dá
+      - ¿siente usted todavía el dolor del peso del saco de comida?
+        - no, ¿verdad?
+        - al entregar esa carga, deja de sentirla, siente alivio, no tiene el peso sobre sus hombros
+      - eso desea Jehová
+        - que le demos nuestras cargas
+        - que cuando se las contemos a el
+          - no nos angustiemos más
+          - que veamos que el cubrirá todas nuestras necesidades
+        - eso requiere confianza en Jehová
+          - no en nuestras habilidades, inteligencia o recursos
+          - versículo 6 dice _humíllense bajo la poderosa mano de Dios_
+            - a persona orgullosa se le hará muy dificil confiar en Diós y entregarle sus inquietudes
+          - debemos reconocer que Jehová es mucho más grande que nosotros
+            - dejar nuestros asuntos y problemas en las manos de Jehová
+              - nos da calma, alivio
+              - los dejamos en las mejores manos del universo
+              - nos quita el miedo al futuro dandonos paz
+  - cuando le hablo a Jehová, ¿que le pido?
+    - por ejemplo, Espíritu Santo
+      - Jesús dijo en Lucas 11:13
+        - _el Padre en el cielo les dará espíritu santo a quienes se lo piden_
+      - la clave es pedirlo
+        - este Espíritu Santo es la fuerza más poderosa del universo
+        - Diós la usó para crear las estrellas, el sol, los planetas, los seres vivos
+        - esa fuerza está a nuestra disposición si se la pedimos con humildad
+      - no significa que nos quitará todos los problemas
+      - significa que nos dará lo que necesitamos para cualquier situacion que encontremos
+        - paciencia
+        - humildad
+        - amor
+        - sabiduría
+        - conocimiento
+        - valor
+
+- 3er paso para confiar en Jehová como nuestra fuerza y refugio
+  - entrar en la familia mundial de los Testigos de Jehová
+  - ¿no puedo adorar yo a Jehová a mi manera, solo?
