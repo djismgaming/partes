@@ -29,9 +29,9 @@
   - leamos juntos el Salmo 46:1, 2
     - _Dios es nuestro refugio y nuestra fuerza, una ayuda siempre disponible en tiempos de angustia. Por eso no tendremos miedo aunque la tierra sufra cambios, aunque las montañas se hundan en las profundidades del mar,_
     - que palabras tan poderosas
-    - como es posible?
-    - versículo 1 dice
-      - _Dios es nuestro refugio y nuestra fuerza_
+      - como es posible?
+      - versículo 1 dice
+        - _Dios es nuestro refugio y nuestra fuerza_
   - la palabra refugio
     - imaginar
       - lugares que preparan las autoridades para proteger a población
@@ -52,7 +52,7 @@
   - para poder mirar al futuro así
     - con confianza
     - sin miedo
-  - nos da 3 cosas
+    - nos da 3 cosas
 
 - 1er lugar
 - Jehová nos promete un futuro maravilloso
@@ -197,7 +197,7 @@
           - pase lo que pase
             - tendremos una familia unida y que se demuestra amor con hechos
           - conozcamos, en el siguiente video, a dos Testigos de Jehová que no le tienen miedo al futuro, a pesar de estar pasando por situaciones muy difíciles
-
+          - _VIDEO_
 - Tanto Sheila como Liubov, confian en Jehová
   - él nunca las ha decepcionado
   - ¿vieron como las ayudó?
